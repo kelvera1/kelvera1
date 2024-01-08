@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kelvera1
-- 👀 I’m interested in ... iniciando programação, series, filmes e anime 
-- 🌱 I’m currently learning ... ecletico
+- 👀 I’m interested in ... , series, filmes e anime 
+- 🌱 I’m currently learning ... ingles e programção 
 - 💞️ I’m looking to collaborate on ... aprender 
 - 📫 How to reach me ...@k.italo
 
